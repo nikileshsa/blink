@@ -1,0 +1,2 @@
+Education is one of the foremost enablers of upwards mobility. Blink provides the opportunity for under-privileged students to pursue their dream education while not worrying about their ability to pay for their education. Blink enables this by forwarding the interest accrued every week on saved money on the platform  to sponsor a under-privileged child for his or her educational expenses. Well you may think, interest accrued per week would be a small fraction. We argue that even fractions speak louder than words.
+
